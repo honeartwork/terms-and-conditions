@@ -1,1 +1,1 @@
-honeartwork.com legal documentation
+honeartwork.com terms and conditions
